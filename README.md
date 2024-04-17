@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Oluwaseyi Omidiji. A student and also learning programming. 
+My name is Oluwaseyi Omidiji. Am a student @ Zuriboard leaarning backend programming and also a student of computer science. 
 
 Am eassy going and love to meet positive people.
 
